@@ -1,1 +1,0 @@
-# 32seing.github.io
